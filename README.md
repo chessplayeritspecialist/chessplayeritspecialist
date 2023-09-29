@@ -17,10 +17,10 @@ __Канал__: Chessplayer - IT Specialist
 
 
 ### Котакты: 
-* Основной канал: [Chessplayer - IT Specialist]("https://www.youtube.com/@chessplayeritspecialist")  
-* Канал разработчика: [Alexey Gantsevich]("https://www.youtube.com/channel/UCt7oE2_eelKlB88rXJ00jXg")
+* Основной канал: [Chessplayer - IT Specialist](https://www.youtube.com/@chessplayeritspecialist)  
+* Канал разработчика: [Alexey Gantsevich](https://www.youtube.com/channel/UCt7oE2_eelKlB88rXJ00jXg)
 
-* Телеграмм: [Chessplayer - IT Specialist]("https://t.me/Chessplayer_IT_Specialist")
+* Телеграмм: [Chessplayer - IT Specialist](https://t.me/Chessplayer_IT_Specialist)
 
 
-Телеграмм: [Chessplayer - IT Specialist](https://t.me/Chessplayer_IT_Specialist)
+
