@@ -23,4 +23,4 @@ __Канал__: Chessplayer - IT Specialist
 * Телеграмм: [Chessplayer - IT Specialist]("https://t.me/Chessplayer_IT_Specialist")
 
 
-Телеграмм: [Chessplayer - IT Specialist]("https://t.me/Chessplayer_IT_Specialist")
+Телеграмм: [Chessplayer - IT Specialist](https://t.me/Chessplayer_IT_Specialist)
